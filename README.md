@@ -1,1 +1,1 @@
-Each part of task 3 of the 1st and 2nd laboratory works is included in relevant task from the first 2.
+Each 3rd part of the 1st and 2nd laboratory works is included in first 2 tasks of the labs, because there are interconnected.
